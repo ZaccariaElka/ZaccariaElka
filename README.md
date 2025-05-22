@@ -1,6 +1,6 @@
 
  ## :grey_question: About me
-18 yo programmer
+19 yo programmer
 
 Looking for Apprenticeships / Internships in Vienna, please contact me for further infos.
 
